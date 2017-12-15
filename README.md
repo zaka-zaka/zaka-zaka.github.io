@@ -1,2 +1,4 @@
 # zaka-zaka.github.io
-Get Up
+Wish IT
+Dream IT
+Do IT !
